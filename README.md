@@ -2,7 +2,7 @@
 - 👀 I’m interested in product management
 - 🌱 I’m currently learning everything regarding data centers
 - 💞️ I’m looking to collaborate on managing the backlog
-- 📫 How to reach me you can reach me at my email address
+- 📫 How to reach me at silvia.chavez@radixiot.com
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I have two dogs that I love with my heart! 
 
